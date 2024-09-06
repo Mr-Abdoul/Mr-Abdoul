@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on your projects
 - 📫 How to reach me https://www.facebook.com/abdourahamane.abdoulaye.395 ; https://www.linkedin.com/in/abdourahamane-abdoulaye-024748230
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Sport , travel
+- ⚡ Fun fact: Sport , Travel
 
 <!---
 Mr-Abdoul/Mr-Abdoul is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
