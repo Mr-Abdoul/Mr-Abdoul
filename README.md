@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on your projects
-- 📫 How to reach me ...
+- 📫 How to reach me https://www.facebook.com/abdourahamane.abdoulaye.395
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Sport , travel
 
